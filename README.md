@@ -1,1 +1,0 @@
-# majcDemo.github.io
